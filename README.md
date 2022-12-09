@@ -1,5 +1,5 @@
 
-# Penipuan Bermodus Dana Kaget
+# Membongkar Penipuan Bermodus Dana Kaget
 
 Kemarin saya menemukan sebuah postingan di fb yang membagikan link yang katanya "link penipuan dana kaget". Karena penasaran saya mencoba membuka link tersebut dan berikut tampilan yang saya dapatkan  
 
